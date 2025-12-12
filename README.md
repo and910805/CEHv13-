@@ -1,6 +1,3 @@
-**<font size='5px' color='#FF7F5='>如果有也是V13的考生，可以一起買考古題嗎，太貴買不下手</font>**
-<font size='5px' color='gray='>要一起買的再寄信給我，這是我的email: </font>goole910805@gmail.com</font>
-
 
 
 
